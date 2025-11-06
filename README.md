@@ -1,2 +1,1 @@
-# california
-# coci ogromniy xyi
+
